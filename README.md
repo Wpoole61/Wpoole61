@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Wpoole61
+- 👀 I’m interested in Ham radio, Electronics, Hunting, fishing 
+- 🌱 I’m currently learning Kicad
+- 💞️ I’m looking to collaborate on pcb design 
+- 📫 How to reach me flyman_1@yahoo.com 
+- 😄 Pronouns: N/A
+- ⚡ Fun fact: I don't know any.
